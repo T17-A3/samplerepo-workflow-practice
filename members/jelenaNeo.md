@@ -9,3 +9,5 @@
 * [Dec 15 - Jul 16] Recruitment Officer, at Aetos Security Management
 
 ## Accomplishments
+
+* Nothing sadly
